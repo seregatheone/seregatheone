@@ -1,4 +1,4 @@
-### Hi there, I'm Sergey - aka [seregatheone][website] 👋
+### Hi there, I'm Sergey - aka seregatheone 👋
 
 - 🔭 I’m currently working on myself
 - 🌱 I’m currently learning to code much staff

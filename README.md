@@ -7,5 +7,5 @@
 - This summer will be the most vallueble 
 - ⚡ Fun fact: I like to play tennis and computer games__
               It's my cup of tea
-- I HAD MOVED TO MOSCOW RECENTLY, THIS ACTION HAS CHANGED MY MIND AND I DECIDED TO PROGRAM MORE THAN EVER BEFORE
+- I HAD MOVED TO MOSCOW RECENTLY, THIS ACTION HAS CHANGED MY MIND AND I DECIDED TO PROGRAING MORE THAN EVER BEFORE
 -->

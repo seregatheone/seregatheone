@@ -3,4 +3,5 @@
 - 🔭 I’m currently working on myself
 - 🌱 I’m learning to code apps
 - ⚡Improving my skills make me happy
-- 💬 Ask me about everething 
+- 💬 Ask me about everything 
+- I also love to suck cocks
